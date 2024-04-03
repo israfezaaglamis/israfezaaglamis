@@ -4,7 +4,7 @@
 
 📌 I am interested in astronomy and space sciences as a hobby.<br>
 
-📌 N5-N4 JP, A2-B1 ENG 
+📌 N5-N4 JP, B2 ENG 
 
 📌 Myers-Briggs Type Indicator & Ennegram : INTJ, 5W6<br><hr>
 
