@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-📌 I’m currently learning  java, Javascript and react<br>
+📌 I’m currently learning  java<br>
 
 📌 I am interested in astronomy and space sciences as a hobby.<br>
 
